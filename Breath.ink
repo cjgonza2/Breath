@@ -5,6 +5,8 @@ This... This isn't right. Everything's spinning. But... I don't feel like I'm sp
 
 What was I doing outside the station again? 
 
+here's what I'll say about this. Youre a bitch
+
 That's right. An asteroid 
 
 -> WeHaveToLeaveYou
